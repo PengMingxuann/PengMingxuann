@@ -10,6 +10,6 @@ Mail:pmx@danwin1210.me
 
 TG:@PengMingxuan
 
-This Page Made By PengMingxuan
+Made By PengMingxuan
 
-2021.9.23 Thursday Rainy
+2021.9.23 Rainy
