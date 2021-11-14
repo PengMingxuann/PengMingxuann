@@ -1,4 +1,4 @@
-Hello,I'm 彭明轩(Pong Michel
+Hello,I'm 彭明轩(Pong Michel)
 
 I from China.
 
