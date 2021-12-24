@@ -8,14 +8,12 @@ WeChat:Keyword_P
 
 Github:PengMingxuann
 
-Ins:@real4map
+Bilibili:EvilPl4yer
 
-Bilibili:4map
+Mail:pengmingxuann@gmail.com
 
-Mail:pengmingxuann@hotmail.com
+TG:@EvilPl4yer
 
-TG:@Real4map
-
-Made By PengMingxuan
+Created By PengMingxuan
 
 2021.9.23 Rainy
