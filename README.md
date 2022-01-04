@@ -12,7 +12,9 @@ Bilibili:EvilPl4yer
 
 Mail:pengmingxuann@gmail.com
 
-TG:@Dem0nLion
+Twitter:@RealDemonLion
+
+TG:@RealDemonLion
 
 Created By PengMingxuan
 
