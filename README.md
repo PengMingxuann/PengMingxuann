@@ -1,11 +1,5 @@
 Hello,I'm 彭明轩(Pong Michel)
 
-I from China.
-
-QQ:2950909106
-
-WeChat:Keyword_P
-
 Github:PengMingxuann
 
 Bilibili:UnfairMichel
