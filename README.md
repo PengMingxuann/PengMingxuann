@@ -6,8 +6,6 @@ Bilibili:UnfairMichel
 
 Mail:pengmingxuann@gmail.com
 
-Twitter:@RealDemonLion
-
 TG:@UnfairMichel
 
 Created By PengMingxuan
